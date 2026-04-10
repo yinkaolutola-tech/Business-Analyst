@@ -1,0 +1,1 @@
+Ayobami Olutola is a CBAP-certified Business Analyst with 8+ years delivering enterprise ERP modernization, digital transformation, and financial systems initiatives across higher education, fintech, banking, and retail. Proven track record translating complex business objectives into scalable technology solutions that drive measurable outcomes.
